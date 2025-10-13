@@ -1,6 +1,6 @@
-#  Spider-Man Multiversos
-#  Spider-Man Multiversos
-#  Spider-Man Multiversos
-#  Spider-Man Multiversos
-#  Spider-Man Multiversos
-#  Spider-Man Multiversos
+#  Spider-Man Multiverses
+#  Spider-Man Multiverses
+#  Spider-Man Multiverses
+#  Spider-Man Multiverses
+#  Spider-Man Multiverses
+#  Spider-Man Multiverses
